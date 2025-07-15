@@ -30,4 +30,4 @@ Data Science & Machine Learning Enthusiast
 ## 📬 Contact
 
 - Email: ramzeynoah11@gmail.com  
-- LinkedIn: [Your LinkedIn URL]
+- LinkedIn: www.linkedin.com/in/noah-logong-053168348
